@@ -1,1 +1,1 @@
-# VentureNFT
+# Venture
